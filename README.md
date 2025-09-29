@@ -1,2 +1,2 @@
-# Kuliah-_Algo_python
+rizqika azzahra 
 apa aja
